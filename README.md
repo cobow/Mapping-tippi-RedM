@@ -1,2 +1,2 @@
 # Mapping-tippi-RedM
-simple map 
+dsicord https://discord.gg/JjvxwVmD
